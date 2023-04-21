@@ -20,9 +20,9 @@ Through an interactive and engaging social media format, the Instagram account w
 
 Projected Profit Value:
 
-The project is expected to generate an additional $1.2 million in profit for the Lucasfilm production studios. The investment cost for the project is approximately two to $300,000, and with the massive following of the Star Wars Instagram account, the project's success is highly anticipated.
+The project is expected to generate an additional $1.2 million in profit for the Lucasfilm production studios. The investment cost for the project is approximately   $200,000 to $300,000, and with the massive following of the Star Wars Instagram account, the project's success is highly anticipated.
 
-Overall, "Imperial Cadet Academy: Legends of the Star Destroyers" provides an exciting and engaging platform for fans to immerse themselves in the Star Wars universe and helps the franchise's continuous growth."
+
 
 Project number two
 
@@ -31,6 +31,8 @@ Title: Star Wars Comparison: Fan-Submitted Fleet Battles
 Synopsis: Lucasfilm, in partnership with YouTube, introduces a new project called 'Star Wars Comparison' that allows fans to submit ideas for their dream fleet composition. The submitted ideas will be ranked based on a public poll, and the top two fleet compositions will be selected for a head-to-head battle. The battle will be showcased on a YouTube channel, inviting Star Wars fans to witness the outcome of the two fan-selected fleets. Fans will be allowed to participate by paying a two dollar fee to submit their fleet composition ideas.
 
 Projected Profit Value: The project 'Star Wars Comparison' is expected to receive a high engagement rate from Star Wars fans, resulting in a projected profit value of 1.4 million dollars. The project will increase engagement, drive traffic to the YouTube channel, and generate revenue through the entrance fee cost.
+
+Disclaimer: The reason that Lucasfilm should make use of the Instagram account and the YouTube page is because those are inexpensive platforms to release these first two projects on in the long run it will create a lot of profit for the company with minimal loss when it comes to where they have to put this new show. They don't have to waste their money putting it on Disney plus and  by putting it on these two places you make it more accessible to everyone even those who don't have Disney plus
 
 Project number three
 
