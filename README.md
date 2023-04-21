@@ -44,5 +44,7 @@ Projected Profit Value: Project Divergence has a high potential for profit with 
 
 
 android:layout_width="wrap_content"
+
 android:layout_height="wrap_content"
+
 android:layout_centerInParent="true"
